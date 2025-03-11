@@ -1,4 +1,4 @@
-                                                                               # @wajdluvsu . . .
+                                                                               @wajdluvsu . . .
 
 ![ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐](https://github.com/user-attachments/assets/cb631a08-cf49-43f9-898f-26f28b28d96d)
 
